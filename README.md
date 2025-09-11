@@ -7,6 +7,6 @@
 </p>
 <p align ="center">☆ ︶︶︶  ౿ ָ🔆 𞥊   ︶︶︶ ☆
 Ꮺ  mari/luci  ೀ filo ✧
-જ⁀➴ c+h ☑  ♡  ೀ  semi-verbal/non-verbal  ೀ  rpdni/sys  ೀ int with caution  ೀ  proship DNI .ᐟ ˚⊹ ᰔ
+જ⁀➴ c+h ☑  ♡  ೀ  semi-verbal/non-verbal  ೀ  rpdni/sys  ೀ i am VERY SENSITVE especially when it comes to certain personal topics so please INTERACT TO ME WITH EXTREME CAUTION  ೀ  proship DNI .ᐟ ˚⊹ ᰔ
 ☆ ︶︶︶  ౿ ָ🔆 𞥊   ︶︶︶ ☆  
 </p>
